@@ -5,3 +5,4 @@ A list of favorite things:
 - 👶
 - 💻
 - 🇮🇳
+- 🧑‍🚀
